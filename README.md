@@ -8,7 +8,7 @@
 
 - 👯 I’m looking to collaborate on projects that would improve my proficiency in data analytics 
 
-- 📫 You can reach out to me via mail on [Gmail](ifeanyiemmanuelezerioha@gmail.com)
+- 📫 You can reach out to me via mail on [Gmail](www.ifeanyiemmanuelezerioha@gmail.com)
 
 - ⚡ Fun fact: I love playing football, but hardly watch football 
 
