@@ -4,7 +4,7 @@
 
 #### I am a Data Analyst 
 
-- 🌱 I’m currently learning SQL for databases 
+- 🌱 I’m currently working on projects to sharpen my skills  
 
 - 👯 I’m looking to collaborate on projects that would improve my proficiency in data analytics 
 
